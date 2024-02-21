@@ -1,6 +1,5 @@
 # 💫 About Me:
-Data Analytics<br>Multiple projects<br>Problem Solving<br>Leet Code Problem Solving <br>Quick Learner<br> I AM THE BEST PLEASE HIRE ME<br>CAKE MURDER ON 29 FEB🎂🔪<br> ATTITUDE BOY 😎😎<BR> U NO RESPECT I NO RESPECT👟<br> I HAVE NICE GITHUB BUT I FORGET TO LOGOUT #CLUMSY CUTIE
-
+Data Analytics<br>Multiple projects<br>Problem Solving<br>Leet Code Problem Solving <br>Quick Learner<br>
 
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/https://www.instagram.com/safal.1216/) [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/https://www.linkedin.com/in/safal-mehrotra-062205228/) 
