@@ -1,5 +1,5 @@
 # 💫 About Me:
-Data Analytics<br>Multiple projects<br>Problem Solving<br>Leet Code Problem Solving <br>Quick Learner<br> I AM THE BEST PLEASE HIRE ME<br>CAKE MURDER ON 29 FEB🎂🔪<br> ATTITUDE BOY 😎😎<BR> U NO RESPECT I NO RESPECT👟
+Data Analytics<br>Multiple projects<br>Problem Solving<br>Leet Code Problem Solving <br>Quick Learner<br> I AM THE BEST PLEASE HIRE ME<br>CAKE MURDER ON 29 FEB🎂🔪<br> ATTITUDE BOY 😎😎<BR> U NO RESPECT I NO RESPECT👟<br> I HAVE NICE GITHUB BUT I FORGET TO LOGOUT #CLUMSY CUTIE
 
 
 ## 🌐 Socials:
